@@ -6,7 +6,7 @@
 - 💼 I’m always up for collaboration that stimulate and engage my expertise paryicularly within the realm of data and world around it.
 - 📫 You can reach me on my [LinkedIn](https://www.linkedin.com/in/itsme-sushmita-singh/) or at sushmitafordata@gmail.com 
 
-- ⚡ Fun fact: Educator turned Data Analyst !!
+- ⚡ Fun fact: Educator turned Data Analyst :smiley: !!
 
 
 ## Skills:
